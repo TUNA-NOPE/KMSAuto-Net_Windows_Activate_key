@@ -1,1 +1,1 @@
-"# KMSAuto-Net_Windows_Activate_key" 
+"# KMSAuto-Windows_Activate_key" 
